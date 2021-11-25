@@ -2,7 +2,7 @@
 
 ### if you like what i do, maybe consider follow my social profile ? ☺️👉️👈️ 
 
-[Instagram](https://www.instagram.com/gianrftcc/)
-[Facebook](https://www.facebook.com/gianluca.raftacco)
-[Linkedin](https://it.linkedin.com/in/gianlucaraftacco)
+[Instagram](https://www.instagram.com/gianrftcc/)\
+[Facebook](https://www.facebook.com/gianluca.raftacco)\
+[Linkedin](https://it.linkedin.com/in/gianlucaraftacco)\
 [Spotify](https://open.spotify.com/user/xqqr0ahg79vnrhaat3batredc?si=r8hREdMAQ9mxr6XuP4ID-g)
