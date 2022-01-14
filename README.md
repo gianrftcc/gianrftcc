@@ -1,5 +1,4 @@
-# 🐺🏔🌲⚔️ 🏴‍☠️
-# Hi, my name is Gianluca, but you can call me Gian. 👋
+# 🐺🏔🌲⚔️ 🏴‍☠️ <br/> Hi, my name is Gianluca, but you can call me Gian. 👋
 ## Try to make internet a better place.
 ### if you like what i do, maybe consider follow my social profile ? ☺️👉️👈️ 
 
