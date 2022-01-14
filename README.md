@@ -1,6 +1,6 @@
 # 🐺🏔🌲⚔️ 🏴‍☠️ <br/> Hi, my name is Gianluca, but you can call me Gian. 👋
-## Try to make internet a better place.
-### if you like what i do, maybe consider follow my social profile ? ☺️👉️👈️ 
+## Try to make internet a better place
+## If you like what i do, maybe consider follow my social profile ? ☺️👉️👈️ 
 
 [Instagram](https://www.instagram.com/gianrftcc/)\
 [Facebook](https://www.facebook.com/gianluca.raftacco)\
