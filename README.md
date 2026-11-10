@@ -11,11 +11,6 @@
 
 ---
 
-## 🙋‍♂️ About me
-
-- 🌍 Based in Castelletto Merli, Italy
-- 🔭 Currently working on: [epagestudio](https://epagestudio.elsist.biz)
-
 ## 🛠 Tech stack
 
 ![Laravel](https://img.shields.io/badge/Laravel-FF2D20?style=for-the-badge&logo=laravel&logoColor=white)
